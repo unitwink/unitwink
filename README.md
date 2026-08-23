@@ -21,7 +21,6 @@
 ![image](https://64.media.tumblr.com/6768ef2cf1e68763687aabd96df85482/287de5b8993a18c1-ef/s100x200/3dbea92d6f4593ae426367c5746cfe79c6252b01.gifv)
 ![image](https://64.media.tumblr.com/e529a8603622594e5d89806f5af5126a/dd851ed67dd48774-2c/s100x200/c668f35422db12282ed7d21a6cef1002ebc6ca88.pnj)
 ![image](https://64.media.tumblr.com/58fde56a37bbe8585a0f9128c2b158e4/cfa03931bb88b3e8-78/s100x200/de02fbe02fd7d11b3684b50bd2bcf6c5933798c2.gifv)
-![image](https://64.media.tumblr.com/20d5e87ee64a2262417c6b4a85edbdd8/14364f1a2e5d445a-94/s100x200/93255b53ae05e275137ffd2d0dae3e6e948a0cdf.pnj)
 ![image](https://64.media.tumblr.com/a5a235e87b5ee2f10b48bc4bd0adbbe4/404a59bb35a3a196-27/s100x200/d63ef1ff875b1903fb059679923b50270e0be111.gifv)
 ![image](https://64.media.tumblr.com/08b111ac752107b53e4e34871d9c255f/14364f1a2e5d445a-12/s100x200/a46b458a7fe52cce6d5e3adb126f6e9be06a0e5f.pnj)
 ![image](https://64.media.tumblr.com/20916fa24f1125b445a81135ed35fe73/2383a6ea20118e43-31/s100x200/b1927497460164a0dd54d02ec6d0bf96a98b6d3f.pnj)
